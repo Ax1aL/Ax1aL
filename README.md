@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Ax1aL -Radu
-- 👀 I’m interested in Coding,Game Design
+- 👀 I’m interested in Coding,Game Design,Rockets and Space
 - 🌱 I’m currently learning Networking,Unreal Engine
 - 💞️ I’m looking to collaborate on Any type of project
 - 📫 How to reach me :send a message!
